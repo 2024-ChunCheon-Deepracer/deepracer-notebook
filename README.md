@@ -3,8 +3,7 @@
 
 
 ### 예선
-
-![Uploading 스크린샷 2024-10-02 오전 12.16.07.png…]()
+<img width="620" alt="스크린샷 2024-10-02 오전 12 16 52" src="https://github.com/user-attachments/assets/bb6b4eb3-bb4e-4f9e-97ed-25b80494e116">
 
 
 ### 본선
