@@ -4,7 +4,15 @@
 
 ### 예선
 
+![Uploading 스크린샷 2024-10-02 오전 12.16.07.png…]()
+
 
 ### 본선
+
+<img width="631" alt="스크린샷 2024-10-02 오전 12 15 01" src="https://github.com/user-attachments/assets/0727f066-5df5-458a-9cf2-5df0ff0e7017">
+
+<img width="606" alt="스크린샷 2024-10-02 오전 12 14 06" src="https://github.com/user-attachments/assets/070d625a-2570-464f-859b-816f276f63fe">
+
+### 결선
 
 
