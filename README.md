@@ -65,19 +65,17 @@ Reinforcement learning 메뉴를 선택하면 모델 페이지가 나타나고 �
 
 
 
-
 ### 예선
 https://github.com/user-attachments/assets/56abc39b-ecce-459f-adb2-1b9d5c69f63b
 
 
 ### 본선
-
 https://github.com/user-attachments/assets/2d0d44ca-d787-4c90-bec0-48d0bdb460c9
 
 
 
 ### 결선
-
+https://github.com/user-attachments/assets/b056e235-b825-48b7-acb7-18749bf5eb4a
 
 
 
